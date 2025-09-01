@@ -23,7 +23,7 @@ Agile frameworks.** Seeking strategic roles in operations, compliance, or busine
 - 💼 &nbsp; Brigham Young University — **B.S in Business Management** 
 - 💻 &nbsp; Ensign College — **Technical Support Enginnering**  
 - 📈 &nbsp; **IT Technician & Business Analytics**  
-- 📫 &nbsp; Reach Out **[LinkedIn](www.linkedin.com/in/henry-noel-vasquez-saucedo-73152617a)**  
+- 📫 &nbsp; Reach Out **[LinkedIn](https://www.linkedin.com/in/henry-noel-vasquez-saucedo-73152617a/)**  
 
 
 
