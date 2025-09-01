@@ -1,4 +1,4 @@
-### 🚀 **Bienvenido a mi espacio de Inteligencia de Negocio y soluciones basadas en datos.** 📊💻
+### 🚀 **Welcome to my space for Business Intelligence and data-driven solutions.** 📊💻
 
 <p align="center">
   <img src="Banner.png" alt="Banner" width="100%">
